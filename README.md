@@ -58,9 +58,9 @@ Also applying the information at professional developer meet-ups and tech confer
 ![Proof of workplace etiquette](Workplace-etiquette-proof.png)
 **S**tar - Having to complete an assessment that is aimed at teaching us how to conduct myself in a professional manner in the workplace.
 
-**T**ask - Going through the information that was given and answering the questions given between the content that is there to test our knowledge of the information 
+**T**ask - Going through the content about how to behave professionally in the workplace and answering the questions given between the content that is there to test our knowledge of the information 
 being taught.
 
-**A**ction -
+**A**ction - Go through all the content and answer all the questions that are there to test my retention of the information.
 
-**R**esult - 
+**R**esult - I scored 80% on the assessment and learned how to conduct myself in the workplace once I enter the professional workforce.
